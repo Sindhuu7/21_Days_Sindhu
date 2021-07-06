@@ -1,4 +1,4 @@
-# 21_Days_Sindhu
+# 21_Days_Sindhu_Alagappan
 Sindhu Alagappan
 KJ Somaiya College of Science and Commerce, Vidyavihar, Mumbai.
 I'm pursuing Statistics.
